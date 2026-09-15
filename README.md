@@ -29,3 +29,10 @@ AUg 28
 My sister and her bf keeps on fighting and i dont even know why. but it gets to the point where they get violent (like pushing eachother slapping, and punching) im really not okay if they keep doing this. i think its mainly the boyfriends fault. because one time they fought over a ulam the boyfriend dint want / like. LIKE BRO its just a ulam? you can liv with out it.
 
 OMG. bruh
+
+Sept 15.
+I forgot to update this but oh well i dont know why i keep forgetting things.
+
+(also me: forget things to cope :///)
+
+Lol ok bye
