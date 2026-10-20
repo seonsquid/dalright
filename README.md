@@ -36,3 +36,20 @@ I forgot to update this but oh well i dont know why i keep forgetting things.
 (also me: forget things to cope :///)
 
 Lol ok bye
+
+
+OCT 20
+
+my mental health isnt getting better. i find my friends irritating more often and i isolate myself more than usual.
+gosh of course it had to be paired with a terrible stomach pain, why was i even born. i never asked to be born but here i am.
+
+
+i want to end up like my other friend who i failed.
+
+
+i hate it when someone leaves me on a game waiting, it makes me overthink that they wanted to leave me alone without a reason.
+
+
+i hate when she
+
+i hate everyone.
